@@ -1,2 +1,2 @@
 # My Backgrounds
-![image](https://github.com/user-attachments/assets/23e11ec6-4402-4a6f-bb14-f4b193c9cbc7)
+![2024-10-09_07-36](https://github.com/user-attachments/assets/c28788f1-7469-4474-9c80-5114fb8dc62f)
